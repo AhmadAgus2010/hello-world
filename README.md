@@ -5,3 +5,5 @@ Saya juga jualan Pulsa dan Token. Kalau lagi urgent bisa hubungi saya :v
 Boleh ngutang kok :wink:
 Tapi jangan sampai lupa hutangnya
 ##WKWKWKWKWKW
+
+*siiiaaaap*
